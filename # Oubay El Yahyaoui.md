@@ -1,16 +1,19 @@
  Prénom : El Yahyaoui
+
  Nom : Oubay
 
  Célibataire  
 
 - Les compétence
 
- E-commerce   
- Exel 
+ E commerce
  
+ exel
+
  création vidéo
 
 
 - Loisir
 
- foot-balle 
+ footballe 
+
